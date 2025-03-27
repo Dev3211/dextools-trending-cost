@@ -22,7 +22,7 @@ The cost of getting a token to trend on **DEXTools** depends on multiple factors
 ✔️ **Use Smart Timing** → Target low-competition hours for cheaper trending  
 
 ## 📞 Get in Touch  
-🔗 **Website**: [DexToolsTrending.com](https://dextoolstrending.com)  
+🔗 **Website**: [Website](https://dextoolstrending.com)  
 💬 **Telegram**: [Telegram](https://t.me/dextoolstrendingcom)
 
 ---
